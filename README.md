@@ -1,1 +1,0 @@
-# wiseinf-portal.github.io
